@@ -1,3 +1,0 @@
-"# Hortaruga" 
-"# Atividade" 
-"# Atividade" 
